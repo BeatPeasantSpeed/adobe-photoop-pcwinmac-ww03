@@ -1,4 +1,4 @@
-# 
+# Automatique Adobe Photoshop extensions pour Mac OS | Natif Adobe Photoshop extensions pour PC Windows. Avec outil calligraphie et traitement par lots — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
